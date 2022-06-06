@@ -18,4 +18,4 @@ I always enjoy learning new things. I liked doing logic tasks. I have participat
 The University of Civil Protection of the Ministry for Emergency Situations of the Republic of Belarus.
 
 ## English
-A2 (but i'm always learning and still ahead).
+B1 (but i'm always learning and still ahead).
